@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @BLESSEDSAMUELES
-- 👀 I’m interested in game development
 - 📫 How to reach me mail to blessedsam40@gmail.com
 
 <!---
